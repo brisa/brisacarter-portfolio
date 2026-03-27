@@ -1,7 +1,7 @@
 # Brisa Carter
 Product Design Leader | Enterprise, B2B, SaaS | Product, Platform, Consumer, and Design Systems
 
-brisacarter.com • brisa.carter@gmail.com • linkedin.com/in/brisa
+brisacarter.com • get-in-touch@brisacarter.com • linkedin.com/in/brisa
 
 ---
 
